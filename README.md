@@ -1,6 +1,6 @@
 - 👋 Hi, we're @NachmaniLab
 - 👀 We're interested in soooooo many things - RNA modifications, Ribosomes heterogeneity, blood (hematopoiesis) and herpesviruses!
-- 🌱 We're currently learning how to do fun science as a young new lab
+- 🌱 We're currently doing fun science, and making new discoveries (scientific and personal) every day :)
 - 💞️ We're looking to collaborate with pashionate and positive scientists
 - 📫 How to reach us - nachmani.lab@mail.huji.ac.il
 - ⚡ Fun fact - Our Yudit makes THE BEST waffles! 
