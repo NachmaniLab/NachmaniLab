@@ -2,7 +2,7 @@
 - 👀 We're interested in soooooo many things - RNA modifications, Ribosomes heterogeneity, blood (hematopoiesis) and herpesviruses!
 - 🌱 We're currently doing fun science, and making new discoveries (scientific and personal) every day :)
 - 💞️ We're looking to collaborate with pashionate and positive scientists
-- 📫 How to reach us - nachmani.lab@mail.huji.ac.il
+- 📫 How to reach us - nachmani.lab@mail.huji.ac.il or https://www.nachmanilab.com/
 - ⚡ Fun fact - Our Yudit makes THE BEST waffles! 
 
 <!---
